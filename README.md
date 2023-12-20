@@ -5,4 +5,4 @@
 - Game Hacking
 - Reverse Engineering
 
-🤓 Feel free to connect with me on various linked platforms.
+🤓 Feel free to connect with me on Discord at @sacuL69.
